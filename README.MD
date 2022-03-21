@@ -1,0 +1,2 @@
+# License
+Please read the license file before using these photos. These photos are covered under Creative Commons Attribution-NonCommercial 4.0 International Public License and it is important that you understand the terms under which these files are governed.
